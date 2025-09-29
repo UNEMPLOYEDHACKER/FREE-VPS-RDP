@@ -250,14 +250,14 @@ Homepage: [App On Fly](https://www.ovhcloud.com)
 - Get in only one single click
 
  
-➢ 𝙎𝙋𝙀𝘾𝙄𝘼𝙇 𝙏𝙃𝘼𝙉𝙆𝙎 - [𝙎𝙐𝘿𝙊 𝙎𝙄𝙍](https://t.me/II_SUDO_II)
+➢ 𝙎𝙋𝙀𝘾𝙄𝘼𝙇 𝙏𝙃𝘼𝙉𝙆𝙎 - [𝙏𝙊𝙅𝙄 𝙎𝙄𝙍](https://t.me/Nexaq)
 
        ╔═════════════════╗
        ║     𝙁𝙊𝙐𝙉𝘿 𝙐𝙎      ║
-       ║ ۞𝙁𝘼𝙇𝘾𝙊𝙉 𝙎𝙀𝘾𝙐𝙍𝙄𝙏𝙔۞║
+       ║ ۞𝘼𝙆𝙃𝘼𝙉𝘿 𝘼𝙍𝙔𝘼𝙑𝘼𝙍𝙏۞║
        ╚═════════════════╝
 
-## [𝙏𝙀𝙇𝙀𝙂𝙍𝘼𝙈](https://t.me/II_HACKER_II) 
+## [𝙏𝙀𝙇𝙀𝙂𝙍𝘼𝙈](https://t.me/Akhand_Aryavart) 
 # [𝙔𝙊𝙐-𝙏𝙐𝘽𝙀](https://youtube.com/@Falconsec)
 ## [𝙄𝙉𝙎𝙏𝘼𝙂𝙍𝘼𝙈](https://www.instagram.com/unemploid_hacker?igsh=MWRyeWd4Z2JjdnN3aQ==)                            
 
